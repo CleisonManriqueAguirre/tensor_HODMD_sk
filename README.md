@@ -1,1 +1,3 @@
-Woaw, such an usefull course, from a wonderfull teacher: Cleison Manrique Armando
+Such a usefull course from a wonderfull teacher: Cleison Manrique 
+by student Arofrenita Rarivonji
+
